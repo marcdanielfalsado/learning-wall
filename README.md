@@ -1,1 +1,1 @@
-https://admin.learningwall.online
+https://www.learningwall.online/
